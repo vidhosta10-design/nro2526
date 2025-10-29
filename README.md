@@ -1,3 +1,2 @@
-# nro2526
-
-vaja1
+Vid Hosta Vončina
+23231253
